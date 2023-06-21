@@ -1,4 +1,4 @@
 # O-leaks
 g*****n leaks
 #### about
-[chick here](http://qczys.scxc.ink/"233")
+[chick here](http://qczys.scxc.ink/)
